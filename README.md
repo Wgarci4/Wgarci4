@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Wgarci4
 - 👀 I’m interested in sports, tech innovations and gravity law
-- 🌱 I’m currently learning how to code and make the best carbonara dish
+- 🌱 I’m currently learning how to code and make the best carbonara dish wihtout bacon. 
 - 💞️ I’m looking to collaborate on creat high growth companies
 
 <!---
